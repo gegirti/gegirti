@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @gegirti or sometimes Gılgamış.
-- 👀 I’m interested in pretty much anything 
+- 👀 I’m interested in pretty much anything thus I am a professional student
 - 🌱 I’m currently learning how to live in general, however if you are more interested in IT, I'm learning HTML and CSS. -this will be surely updated-
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
